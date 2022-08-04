@@ -2,5 +2,4 @@
 - I’m interested in Linux cli, Python, Logging
 - I’m currently learning cybersecurity at Evolve Security Academy
 - I’m looking to network and learn
-- Reach me on Linkedin  https://www.linkedin.com/in/geoff-almstead-9343b9101?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BWGTHs%2FRSTCaTdWojraCHRQ%3D%3D [
---->
+- Reach me on Linkedin  https://www.linkedin.com/in/geoff-almstead-9343b9101?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BWGTHs%2FRSTCaTdWojraCHRQ%3D%3D 
